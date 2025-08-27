@@ -1,4 +1,4 @@
-# Best OKX Referral Code (96613811): Trade Smarter, Earn Bigger****
+# Best OKX Referral Code (96613811): Trade Smarter, Earn Bigger
 
 Unlock $10,000 Bonus and 50% Fee Discount with OKX Referral Code (96613811)
 
